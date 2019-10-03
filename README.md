@@ -10,7 +10,7 @@
 
 ### 最新
 
-* [世界，你好！](https://blog.sunds.cn/hello-solo)
+* [2019-10-02-21:00 孙大圣博客成立了！](https://blog.sunds.cn/articles/2019/10/02/1570021372501.html)
 
 
 
